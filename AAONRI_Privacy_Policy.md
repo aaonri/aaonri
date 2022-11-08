@@ -1,4 +1,4 @@
-### **Privacy Policy**
+### Privacy Policy
 
 ### INTRODUCTION
 At AAONRI.COM INC (“aaonri”), we appreciate the trust you place in us when you choose to visit our website, https://www.aaonri.com, (the “Website”) and social media pages, and we are committed to protecting your privacy. This aaonri Privacy Policy (the “Privacy Policy”) describes the types of personal information we collect, why and how we collect it, how we use it, and when we share it with third parties. Our Policy also describes the choices you can make about how we collect and use your personal information. In this Privacy Policy, “we” and “our” means aaonri and “you” means any person who visits our Website or social media accounts, calls us on the phone, or emails us.
